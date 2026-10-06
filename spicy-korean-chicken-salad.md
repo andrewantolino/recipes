@@ -69,8 +69,9 @@ of chicken: 12 g mayo, 1 spring onion, 4-8 g extra peanut butter.
 6. **Shred.** Transfer the chicken to a stand mixer with the paddle
    attachment and mix on low until shredded (about 20-30 seconds).
    Alternatively, use two forks.
-7. **Toss in the juices.** Return the shredded chicken to the dish and toss
-   it in the pan juices.
+7. **Toss in some of the juices.** Return the shredded chicken to the dish
+   and toss it in the pan juices a few tablespoons at a time, stopping when
+   the meat is moist but not pooling. Save the rest (see Notes).
 8. **Cool and store.** Let it cool, then portion into airtight containers or
    freezer bags (see Notes for storage).
 
@@ -86,6 +87,24 @@ of chicken: 12 g mayo, 1 spring onion, 4-8 g extra peanut butter.
 
 - **Skip the extra salt.** Gochujang and soy are both salty, so taste before
   adding any.
+- **Leftover juices:** the liquid left in the dish is concentrated flavour
+  (chicken juice, gochujang, peanut butter, soy), so keep it. Too much added
+  back makes the filling wet, soggy in bread, and shorter-lived, so only
+  return what the chicken absorbs. Ways to use the rest:
+  - **Reduce to a glaze:** simmer in a small pan for 5-10 minutes until
+    syrupy. Stir it into the mayo for a sandwich spread, or drizzle it over
+    rice or noodles.
+  - **Make a sauce:** thin with a splash of water or lime juice, and add a
+    little peanut butter if you want it creamier.
+  - **Use as a broth base:** add stock and noodles for a quick
+    peanut-gochujang soup.
+  - **Storing it:** chill it and lift off the set fat if you like (or leave
+    it in for richness). Keeps 3-4 days in an airtight container at or below
+    4°C, or freeze in ice cube trays for 2-3 months and drop a cube into
+    fried rice, soup or a sandwich filling. Cool it promptly before storing.
+  - **Too much every time?** Chicken breast releases a lot of water when
+    covered. Use the low end of the marinade water, or skip it if the
+    gochujang and peanut butter loosen enough on their own.
 - **Mix the filling per serving.** Mayo, spring onion and extra peanut butter
   all shorten shelf life or get soggy, so only mix what you'll eat that day.
   The plain chicken is the long-life part.
